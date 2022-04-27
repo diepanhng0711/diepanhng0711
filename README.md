@@ -15,4 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-  Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
+Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
+
+-->👨‍🎓 Currently studying Information Technology (majoring in Application Software <AS>) at Hanoi University of Science and Technology
+-->🗣️ Vietnamese, English, 日本語(Japanese)
+-->...
+  There will be more on my GitHub profile someday 😄😄😄
