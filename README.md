@@ -27,8 +27,6 @@ Here are some ideas to get you started:
 <br>
 -->...
 <br>
-https://user-images.githubusercontent.com/93863601/165573753-f79f8962-9217-4d15-871d-bf82b4b5903d.mp4
-<br>
 <br>
   There will be more on my GitHub profile someday 😄😄😄 And now, enjoy your time!!! 👏👏👏
 
