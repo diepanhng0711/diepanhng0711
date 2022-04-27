@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 💕💕💕 Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
 <br>
 <br>
--->:vietnam:
+--> :vietnam: I'm Vietnamese :fist_right::fist_left:
 <br>
 -->👨‍🎓 Currently studying Information Technology (majoring in Application Software) at Hanoi University of Science and Technology
 <br>
