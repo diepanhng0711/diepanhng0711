@@ -26,4 +26,4 @@ Here are some ideas to get you started:
 -->...
 <br>
 <br>
-  There will be more on my GitHub profile someday 😄😄😄
+  There will be more on my GitHub profile someday 😄😄😄 And now, enjoy your time!!! 👏👏👏
