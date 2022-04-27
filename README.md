@@ -15,8 +15,10 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+<br>
 Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
-
+<br>
+<br>
 -->👨‍🎓 Currently studying Information Technology (majoring in Application Software <AS>) at Hanoi University of Science and Technology
 -->🗣️ Vietnamese, English, 日本語(Japanese)
 -->...
