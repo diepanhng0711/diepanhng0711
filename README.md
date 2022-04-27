@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋👋👋
 
 <!--
 **diepanhng0711/diepanhng0711** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 <br>
-Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
+💕💕💕 Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
 <br>
 <br>
 -->👨‍🎓 Currently studying Information Technology (majoring in Application Software) at Hanoi University of Science and Technology
