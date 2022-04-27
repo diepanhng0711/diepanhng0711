@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 <br>
 -->👨‍🎓 Currently studying Information Technology (majoring in Application Software) at Hanoi University of Science and Technology
 <br>
--->🗣️ Vietnamese, English, 日本語(Japanese)
+-->🗣️ Tiếng Việt(Vietnamese), English, 日本語(Japanese)
 <br>
 -->...
 <br>
