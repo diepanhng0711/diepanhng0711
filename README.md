@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
 <br>
 <br>
--->👨‍🎓 Currently studying Information Technology (majoring in Application Software <AS>) at Hanoi University of Science and Technology
+-->👨‍🎓 Currently studying Information Technology (majoring in Application Software) at Hanoi University of Science and Technology
 <br>
 -->🗣️ Vietnamese, English, 日本語(Japanese)
 <br>
