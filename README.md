@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 <br>
-💕💕💕 Wish all you guys visiting my GitHub profile all the best!!! 💕💕💕
+=====>>> Wish all you guys visiting my GitHub profile all the best!!! <<<=====
 <br>
 <br>
 --> :vietnam: I'm Vietnamese :fist_right::fist_left:
