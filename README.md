@@ -28,7 +28,7 @@ Here are some ideas to get you started:
 -->...
 <br>
 <br>
-  There will be more interesting things on my GitHub since I'm uploading my things day by day 😄😄😄 And now, enjoy your time!!! 👏👏👏
+  There will be more interesting things on my GitHub profile since I'm uploading my things day by day 😄😄😄 And now, enjoy your time!!! 👏👏👏
 
 
 
