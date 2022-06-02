@@ -21,14 +21,14 @@ Here are some ideas to get you started:
 <br>
 --> :vietnam: I'm Vietnamese :fist_right::fist_left:
 <br>
--->👨‍🎓 Currently studying Information Technology (majoring in Application Software) at Hanoi University of Science and Technology
+-->👨‍🎓 Currently studying Information Technology (majoring in Application Software Engineering) at Hanoi University of Science and Technology
 <br>
 -->🗣️ Tiếng Việt(Vietnamese), English, 日本語(Japanese)
 <br>
 -->...
 <br>
 <br>
-  There will be more on my GitHub profile someday 😄😄😄 And now, enjoy your time!!! 👏👏👏
+  There will be more interesting things on my GitHub since I'm uploading my things day by day 😄😄😄 And now, enjoy your time!!! 👏👏👏
 
 
 
