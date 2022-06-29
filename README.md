@@ -1,4 +1,4 @@
-### Hi there 👋👋👋
+### Hi there
 
 <!--
 **diepanhng0711/diepanhng0711** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -19,16 +19,17 @@ Here are some ideas to get you started:
 =====>>> Wish all you guys visiting my GitHub profile all the best!!! <<<=====
 <br>
 <br>
---> :vietnam: I'm Vietnamese :fist_right::fist_left:
+--> :vietnam: I'm Vietnamese
 <br>
--->👨‍🎓 Currently studying Information Technology (majoring in Application Software Engineering) at Hanoi University of Science and Technology
+--> Currently studying Information Technology (majoring in Application Software Engineering) at Hanoi University of Science and Technology
 <br>
--->🗣️ Tiếng Việt(Vietnamese), English, 日本語(Japanese)
+--> Languages: Tiếng Việt(Vietnamese), English, 日本語(Japanese)
 <br>
--->...
+--> PL: C, C++, C#, Java, MIPS Assembly, SQL
+<br>
+--> Platform: ASP. Net, .Net Framework, Unity, SDL, Android Studio, JavaFX, Microsoft SQL Server, mySQL
 <br>
 <br>
-  There will be more interesting things on my GitHub profile since I'm uploading my things day by day 😄😄😄 And now, enjoy your time!!! 👏👏👏
 
 
 
